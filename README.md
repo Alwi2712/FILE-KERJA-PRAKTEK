@@ -1,2 +1,2 @@
 # File-Kerja-Praktek
-Alwi ABdul Rohman
+Alwi Abdul Rohman
